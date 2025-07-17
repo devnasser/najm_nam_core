@@ -1,0 +1,1 @@
+# najm_nam_core
